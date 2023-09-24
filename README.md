@@ -1,1 +1,1 @@
-minism.jp
+minism.jp / dadaa.github.io
